@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @KieranKearey
 - 👀 I’m interested in digital technology & the world of business
 - 🌱 I’m currently learning N/A
-- 📫 How to reach me: https://www.fiverr.com/kierankearey_  or  https://www.instagram.com/kieran.kearey/
+- 📫 How to reach me: https://www.instagram.com/kieran.kearey/
